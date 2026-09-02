@@ -1,3 +1,3 @@
 # hw1-f26
 Starting out
-Isaac is dumb sometimes
+Isaac is dumb on Wednesdays 😂
